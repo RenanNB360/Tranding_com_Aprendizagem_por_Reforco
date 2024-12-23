@@ -1,0 +1,1 @@
+# Tranding_com_Aprendizagem_por_Reforco
